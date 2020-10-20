@@ -31,4 +31,4 @@ PC梯子，VPN(虚拟专用网络，Virtual Private Network)的俗称， 可以�
 
 ## 购买PC梯子地址
 
-想要购买好用的PC梯子，可以看这里： [PC梯子软件排行榜}(http://pctiz.com/)
+想要购买好用的PC梯子，可以看这里： [PC梯子软件排行榜](http://pctiz.com/)
